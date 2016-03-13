@@ -42,8 +42,8 @@
 6. Youth of Today - Break down the walls (newer, white)
 7. Overcome (tooth & nail)
 8. Screeching Weasel - major label debut - panic button
-9.) Bloodlet - Entheogen (on victory rec.)
-10.) Fastbreak - Fast Cars, Fast Women. '98?
+9. Bloodlet - Entheogen (on victory rec.)
+10. Fastbreak - Fast Cars, Fast Women. '98?
 
 
  
