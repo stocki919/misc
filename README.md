@@ -23,7 +23,7 @@
 22. Esteem / Strength Approach split
 23. Bloodshed - the soft spoken words of fallbrook (tooth & nail) //this is awesome!
 24. Convicted truth - words of expression (swedish?)
-25. Refuse the statment (struggle inside / Keep it alive records)
+25. Refuse the statement (struggle inside / Keep it alive records)
 26. Product - Dedication
 27. Until the End - Let the world burn (think fast!)
 28. Snapcase (comatose, chrown of thorns) '92?
